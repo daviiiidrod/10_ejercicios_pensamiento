@@ -1,0 +1,1 @@
+# 10_ejercicios_pensamiento
